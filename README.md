@@ -8,7 +8,7 @@
 定位采集，
 免费代开发修复bug：@sihaikeji068     
         
-         ![photo_2024-06-03_14-23-51](https://github.com/sihaikeji/tgqunfalaren/assets/164607790/5c3871ac-b18d-405c-bc3b-5367f253cdb1)
+![photo_2024-06-03_14-23-51](https://github.com/sihaikeji/tgqunfalaren/assets/164607790/5c3871ac-b18d-405c-bc3b-5367f253cdb1)
 ![photo_2024-06-03_14-23-52](https://github.com/sihaikeji/tgqunfalaren/assets/164607790/b5efffed-e383-441a-9a38-6e771ecc8176)
 ![photo_2024-06-03_14-23-52 (2)](https://github.com/sihaikeji/tgqunfalaren/assets/164607790/d6cf87f1-fe28-415c-90a1-2103d27c388c)
 ![photo_2024-06-03_14-23-52 (3)](https://github.com/sihaikeji/tgqunfalaren/assets/164607790/2a69c94d-2e59-4841-9e17-9475764c5334)
